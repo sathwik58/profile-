@@ -59,5 +59,7 @@ Fabricated gearbox:
 
 For more technical details, please contact me.
 
+- Email: sathwikmunigala200@gmail.com
+- Phone: +91 7416548879
 - LinkedIn: https://www.linkedin.com/in/sathwik-munigala-794447289/
 - GitHub: https://github.com/sathwik58
